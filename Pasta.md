@@ -7,9 +7,11 @@
  
 ## Instrucciones 
 * cocinar los fideos a fuego lento vv 
-* invitar solo gente leal 
+* invitar solo gente leal
+* queso derretido al gusto 
 
-![ ](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.myplate.gov%2Fes%2Frecipes%2Fpasta-la-sarten&psig=AOvVaw37uNea91W-T-uuBETRR-2m&ust=1749842562222000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCJi01NXN7I0DFQAAAAAdAAAAABAE)
+![ ](https://assets.tmecosys.com/image/upload/t_web_rdp_recipe_584x480/img/recipe/ras/Assets/6F320FC7-CBD7-419D-B790-24DA25E975F9/Derivates/9774C36E-8478-4BE3-A8CD-FF02AC5B9BCB.jpg)
+
 
 
 
